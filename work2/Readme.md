@@ -1,0 +1,1 @@
+güzel değişik örnekler
